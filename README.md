@@ -9,7 +9,8 @@ rude in general / non speakin’ English dni
 ★Im a minor hi,,, (12)
 mostly offtab srry for not resp/late resp!!
 
-<img width="1920" height="1358" alt="IMG_5714" src="https://github.com/user-attachments/assets/0d05af13-2661-4e61-8587-a2af7ce5a8a7" />
+<img width="2560" height="1810" alt="1K3A1SM07_BSVSCT" src="https://github.com/user-attachments/assets/6d55a780-aecf-417c-8ee3-cca6d0ab5572" />
+
 
 
 ｡･:*:･ﾟ★,｡･:*:･ﾟ☆
