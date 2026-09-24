@@ -1,10 +1,6 @@
-HELLO MY FELLOW ROBLOXⵊANS ! ✨
+HELLO MY DARLINGS! ✨
 
-<img width="640" height="40" alt="IMG_4380" src="https://github.com/user-attachments/assets/d5c64d85-dc43-447b-b42d-5c619953c365" />
-
-
-
-<img width="220" height="164" alt="IMG_4375" src="https://github.com/user-attachments/assets/0c9d28a0-a5ed-407b-9845-7eba6cb3b17b" />
+<img width="609" height="266" alt="IMG_5713" src="https://github.com/user-attachments/assets/db5a20aa-fb97-4142-bb5c-9a23b10a171a" />
 
 ＊┈┈┈┈＊┈┈┈┈＊┈┈┈┈*
 
@@ -13,7 +9,8 @@ rude in general / non speakin’ English dni
 ★Im a minor hi,,, (12)
 mostly offtab srry for not resp/late resp!!
 
-<img width="640" height="431" alt="IMG_4377" src="https://github.com/user-attachments/assets/841f4a34-f74a-4192-a2ca-05a61f4b64d6" />
+<img width="1920" height="1358" alt="IMG_5714" src="https://github.com/user-attachments/assets/0d05af13-2661-4e61-8587-a2af7ce5a8a7" />
+
 
 ｡･:*:･ﾟ★,｡･:*:･ﾟ☆
 
